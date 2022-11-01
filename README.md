@@ -1,1 +1,3 @@
-# About-Me
+# About-Me 
+Hi everyone! My name is Ishita Jalan. I am from the City of Joy, Kolkata, India. I am a first year student studying Graphic Communication Design at Central Saint Martins, UAL. I have been living in London for two years, I completed my foundation diploma in art and design from Camberwell Chelsea Wimblendon College, UAL last year. 
+I have grown and brought up in the cultural city of India rich in heritage, food, music, damce, ethniticies and architecture. Kolkata is home to great thinkers, artists, writers and world leaders. I have been always passionate about art and design since a young age. I have been learning about the creative field since 13 years and want to continue do so.
